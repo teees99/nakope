@@ -1,0 +1,2 @@
+# nakope
+Vše tam
